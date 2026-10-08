@@ -1,1 +1,1 @@
-Egg
+1 Large Egg
